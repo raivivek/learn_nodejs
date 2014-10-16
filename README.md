@@ -23,4 +23,4 @@ MIT
 
 Suggestions?
 ============
-Feel free to drop comments at `vivekraiiitkgp [at] gmail [dot] com`
+Feel free to drop comments at [email](http://www.google.com/recaptcha/mailhide/d?k=01m5KaPKUB722l6ZnmA3cRXw==&c=GSe2D7Y3aIu4WlYFA8d2Vn_CQikB2LVUcd-pcfrlvOI=)
